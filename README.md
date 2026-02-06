@@ -1,1 +1,1 @@
-# 584-HW2
+https://roberteclarkson.github.io/584-HW2/
